@@ -16,5 +16,5 @@
 - cd sc yg mau di run ya. 
 
 - Salam santun
-https://line.me/ti/p/~dekradakz
+- https://line.me/ti/p/~dekradakz
 
